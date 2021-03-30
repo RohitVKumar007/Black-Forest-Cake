@@ -1,0 +1,1 @@
+The black forest cake is a traditional version of a cake which has many layers of chocolate sponge cake with whipped cream and cherries. It is covered with whipped cream and choclate chips from all sides and covered with cherries on top.
